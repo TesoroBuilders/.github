@@ -3,8 +3,7 @@
 **One accountable partner, from first sketch to final walkthrough.**
  
 Tesoro Builders is a design-build general contractor serving San Bernardino and Riverside Counties. We coordinate independent architects and engineers, our design partners, so owners, developers, and landlords deal with one party from early budgeting through construction.
- 
----
+
  
 ## Services
  
